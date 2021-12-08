@@ -1,2 +1,2 @@
 # Greenaether
-A Modern Way for Easy Access Sustainable Energy  •  Coming Soon!
+A Modern Way to Access Sustainable Energy  •  Coming Soon!
