@@ -1,2 +1,2 @@
 # Greenaether
-Access to modern sustainable energy tool.
+A Modern Way for Easy Access Sustainable Energy  •  Coming Soon!
